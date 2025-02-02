@@ -1,4 +1,4 @@
-# Hey folks! 👋
+# Hey! 👋
 
 I'm Priyanka Verma, a passionate 💼 Banking & Finance professional with 6+ years of experience in 📊 Credit Risk Management and 💰 Lending Advisory. I enjoy building strong client relationships 🤝, making smart credit decisions ✅, and collaborating with collections to keep the credit portfolio in top shape 📉📈.
 
