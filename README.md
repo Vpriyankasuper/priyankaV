@@ -9,7 +9,7 @@ I was born and raised in Delhi and completed my education at the University of D
 
 - Global Business Operations, SRCC, University of Delhi, India (2017), (7th university rank holder).
 - Bachelor's in Business Studies, DDUC, University of Delhi, India (2014), (5th university rank holder).
-- FRM, GARP Level qualified.
+- FRM, GARP Level 1 qualified.
 
 💼 **Current Role**: Sr. Credit Manager at HDFC Bank Ltd, New Delhi, India- taking care of MSME segment accross north India.
 
